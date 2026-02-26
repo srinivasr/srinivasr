@@ -10,7 +10,7 @@
 
 \o_o Curious about new technologies and love building small projects to understand how things work.
 
-\>_<i use arch btw.
+\>_< i use arch btw.
 
 ---
 
